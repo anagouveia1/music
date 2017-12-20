@@ -5,6 +5,7 @@ The files added to this repository represent a few of the singles I was able to 
 In a way, although my backing tracks were selected at random by YouTube, it seems that I'm in the very beginnings of developing my own style. In these tunes, it is clear to me that some of my greatest influences, guys like Led Zeppellin, Metallica, Heavy Metal Bands & Charlie Brown Jr. play a key role on the sounds I made live during these YouTube broadcast.
 
 Certainly, there are parts that still require improvement and I hope I'm capable to transform these tunes into something worthwhile.
+For comments and suggestions please e-mail me at anagouveia@engineer.com.
 
 #YouTube Video:
 
@@ -16,3 +17,8 @@ Certainly, there are parts that still require improvement and I hope I'm capable
 
 :: My second favorite = Mystic Gods ::
 :: https://www.youtube.com/watch?v=b1FBIhEE9tI ::
+
+:: A Sad Song ::
+:: https://www.youtube.com/watch?v=iy0UTCNL8mc ::
+
+
