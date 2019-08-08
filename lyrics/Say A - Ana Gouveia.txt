@@ -1,0 +1,53 @@
+Say A
+Ana Gouveia
+
+Feeling like I could just
+cry alone in my bed
+But sometimes I like to say
+All these voices in my head
+Are keeping me up at night
+In and I still can't feel that vibe
+Least the internet is top speed
+I'm at 250 megabytes and I feel like my brain can't handle this
+Say eh ah A
+A
+A
+A
+AA
+AAA
+AA
+
+/seemyvibe?
+/gotmyflow?
+/letsdig
+
+Hearing the universe
+Feeling like this isn't the first time
+It's my right I know this is my life
+
+Why are you trying to stop what came from me?
+It's my own thing, its my own dang, 
+Saving me, helping me, letting be, 
+E
+E
+EE
+E
+EE
+A
+A
+A
+I
+
+I Still feel nothing
+Though I just wanna cry
+Did you hear me last night?
+
+I = Ai
+
+Twenty thousand years
+And man cant satisfy his greed
+I'm sorry I just regret dat
+
+I read in a story book
+But I couldn't hope dat
+De future is Ted.
